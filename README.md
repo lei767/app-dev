@@ -13,8 +13,5 @@ Squid Game is a South Korean survival drama series that shows desperate people j
 ## Favorite Character
 Seong Gi-hun – because he shows growth, kindness, and human struggle throughout the series.
 
-## Favorite Scene
-The marbles game scene because it was emotional and unexpected.
-
 ## Rating
  10/10
