@@ -15,3 +15,6 @@ Seong Gi-hun – because he shows growth, kindness, and human struggle throughou
 
 ## Rating
  10/10
+
+## New Update
+Added more explanation of Squid Game favorite scenes.
